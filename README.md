@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @CiBorg1504
+- 👀 I’m interested in gaming, travelling and researching into the Robotics and Automation world.
+- 🌱 I’m currently enrolled in a Bachelor of Science degree in Maynooth University studying Robotics and Intelligent Devices.
+- 📫 Reach me through my email: cielosky.mb@gmail.com
